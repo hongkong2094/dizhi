@@ -4,13 +4,13 @@
 
 🔥 👉 【韩漫地址二】 ：https://www.mimihanman.net
 
-🔥 👉 【韩漫地址三】 ：https://www.18jin.org
+🔥 👉 【韩漫地址三】 ：https://www.18jin.icu
 
 🔥 👉 【韩漫地址四】 ：https://www.18seman.com
 
 🔥 👉 【小说地址一】 ：https://www.66story.com 
 
-🔥 👉 【小说地址二】 ：https://www.18jinshu.com
+🔥 👉 【小说地址二】 ：https://www.18jinshu.icu
 
 🌐 👉 【海外地址】 ：https://www.hmh9.com
 
