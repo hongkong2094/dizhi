@@ -1,5 +1,7 @@
 ‼️‼️ 最新地址发布‼️‼️
 
+防走丢，请加tg群:https://t.me/+NTR_3sqj2N8xNml1    X:@66manhua_top
+
 🔥 👉 【韩漫地址一】 ：https://www.seyoumanhua.top
 
 🔥 👉 【韩漫地址二】 ：https://www.mimihanman.net
