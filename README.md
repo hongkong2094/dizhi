@@ -6,7 +6,7 @@
 
 🔥 👉 【韩漫地址一】 ：https://www.seyoumanhua.top
 
-🔥 👉 【韩漫地址二】 ：https://www.mimihanman.net
+🔥 👉 【韩漫地址二】 ：https://www.mimihanman.com
 
 🔥 👉 【韩漫地址三】 ：https://www.18jin.icu
 
